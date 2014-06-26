@@ -26,3 +26,21 @@ http://blog.livedoor.jp/aoba_f/archives/39072132.html
 http://blog.livedoor.jp/pururungazou/archives/7700668.html
 
 http://asimomo.blog74.fc2.com/blog-entry-1356.html
+
+http://bitchonko.com/articles/14662
+
+http://idol.sankakucomplex.com/post/show/544394
+
+http://idol.sankakucomplex.com/post/show/547133
+
+http://ikaremix.tumblr.com/page/6030
+
+http://gazou.blogstation.jp/archives/51842151.html
+
+http://idol.sankakucomplex.com/?tags=one-piece_swimsuit
+
+http://ikaremix.tumblr.com/page/6028
+
+http://ikaremix.tumblr.com/page/6027
+
+http://ikaremix.tumblr.com/image/50260062287
