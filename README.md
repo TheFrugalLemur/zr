@@ -20,3 +20,9 @@ http://pp.163.com/hdhe/pp/8719082.html#30440806
 http://blog.sina.com.cn/u/3227203200
 
 https://www.flickr.com/photos/yuria/sets/72157625666807119
+
+http://blog.livedoor.jp/aoba_f/archives/39072132.html
+
+http://blog.livedoor.jp/pururungazou/archives/7700668.html
+
+http://asimomo.blog74.fc2.com/blog-entry-1356.html
