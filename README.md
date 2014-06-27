@@ -52,3 +52,9 @@ http://www.japanator.com/idol-of-the-week-anna-konno-29281.phtml
 http://g.e-hentai.org/g/664927/5b264849ca/
 
 http://worldcosplay.net/member/91733/
+
+http://seihin.blog.jp/archives/37170668.html
+
+http://himasoku.com/archives/51817949.html
+
+http://japan-adult.com/erotic-japanese-anime-cosplay-girls/
