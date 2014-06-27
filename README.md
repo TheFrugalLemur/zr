@@ -48,3 +48,7 @@ http://ikaremix.tumblr.com/image/50260062287
 http://www.listal.com/chiaki-kyan/pictures
 
 http://www.japanator.com/idol-of-the-week-anna-konno-29281.phtml
+
+http://g.e-hentai.org/g/664927/5b264849ca/
+
+http://worldcosplay.net/member/91733/
