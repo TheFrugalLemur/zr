@@ -44,3 +44,7 @@ http://ikaremix.tumblr.com/page/6028
 http://ikaremix.tumblr.com/page/6027
 
 http://ikaremix.tumblr.com/image/50260062287
+
+http://www.listal.com/chiaki-kyan/pictures
+
+http://www.japanator.com/idol-of-the-week-anna-konno-29281.phtml
